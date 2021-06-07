@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-- 🔭 I’m currently working on obtaning CompTIA Security+
+- 🔭 I’m currently open to full time opportunities in Canada.
 - 🌱 I’m currently practicing
 - 👯 I’m looking to collaborate on security projects
 - 🤔 I’m looking for help with job search
